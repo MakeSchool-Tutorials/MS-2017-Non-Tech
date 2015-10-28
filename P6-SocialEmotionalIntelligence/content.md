@@ -21,5 +21,3 @@ How might you improve that skill? What steps or practices might you use?
 
 - [VC and Executive coach Jerry Colona Product Hunt AMA on managaing emotions](https://www.producthunt.com/live/jerry-colonna?preview=2efb4be481#comment-155821)
 - 20 min [Vulnerability TedTalk  - Brene Brown](https://www.youtube.com/watch?v=iCvmsMzlF7o) 
-- (1 hour) [Empathy podcast episode](
-https://www.dropbox.com/s/kd0yenkrtca0dod/romankrznaric%20on%202015-07-23%20at%2009.09.mov?dl=0) - DOWNLOAD to listen, starts at 4:30.
